@@ -1,10 +1,12 @@
 HI IM SAE!!! u can also call me sano 
 
+![](https://i.imgur.com/ZtY1EFj.png) <- me heh...
+
 i have pretty much no dni unless ur a proshipper or something but other than that anyone can int :3 
 
 check my rentry for more info about me or my interests if u want im 2 lazy to write more here ahhhhhh
 
-![](https://i.imgur.com/1qj8oP6.png)
+![](https://i.imgur.com/1qj8oP6.png) 
 
 gonna add a bunch of stamps bc im insane and need to build my stamp collection back up YAY!
 
