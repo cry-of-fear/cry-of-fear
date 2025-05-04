@@ -1,4 +1,4 @@
-HI IM SAE!!! u can also call me sano 
+HI IM SAE!!! u can also call me kashi
 
 i have pretty much no dni unless ur a proshipper or something but other than that anyone can int :3 
 
