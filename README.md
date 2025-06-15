@@ -1,11 +1,12 @@
+![SHUAKETRANSPERENT2](https://github.com/user-attachments/assets/9ad9dda5-63e1-43e9-b05d-b9360ebf8bed)
+
 HI IM SAE!!! u can also call me kashi
 
 i have pretty much no dni unless ur a proshipper or something but other than that anyone can int :3 
 
 check my rentry for more info about me or my interests if u want im 2 lazy to write more here ahhhhhh
 
-![](https://files.catbox.moe/ax3w8z.png) ![IMG_7790](https://github.com/user-attachments/assets/6af832e5-ca7f-4a81-85dc-63e4382657f1) 
-
+![IMG_7790](https://github.com/user-attachments/assets/d4de000d-4c17-4893-a55a-aecf196f2326)
 
 gonna add a bunch of stamps bc im insane and need to build my stamp collection back up YAY!
 
