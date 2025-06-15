@@ -6,7 +6,8 @@ i have pretty much no dni unless ur a proshipper or something but other than tha
 
 check my rentry for more info about me or my interests if u want im 2 lazy to write more here ahhhhhh
 
-![IMG_7790](https://github.com/user-attachments/assets/d4de000d-4c17-4893-a55a-aecf196f2326)
+![IMG_7790 (1)](https://github.com/user-attachments/assets/2e368f3d-a792-4af6-8e78-433a9439f9a6)
+
 
 gonna add a bunch of stamps bc im insane and need to build my stamp collection back up YAY!
 
