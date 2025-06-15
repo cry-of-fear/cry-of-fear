@@ -4,7 +4,8 @@ i have pretty much no dni unless ur a proshipper or something but other than tha
 
 check my rentry for more info about me or my interests if u want im 2 lazy to write more here ahhhhhh
 
-![](https://files.catbox.moe/ax3w8z.png)
+![](https://files.catbox.moe/ax3w8z.png) ![IMG_7790](https://github.com/user-attachments/assets/6af832e5-ca7f-4a81-85dc-63e4382657f1) 
+
 
 gonna add a bunch of stamps bc im insane and need to build my stamp collection back up YAY!
 
