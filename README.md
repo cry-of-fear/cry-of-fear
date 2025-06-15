@@ -9,9 +9,7 @@ check my rentry for more info about me or my interests if u want im 2 lazy to wr
 ![IMG_7790 (1)](https://github.com/user-attachments/assets/2e368f3d-a792-4af6-8e78-433a9439f9a6) 
 
 
-https://github.com/user-attachments/assets/d7060735-56ed-44f6-9aec-14cb443894f3 @eggisyum
-
-
+https://github.com/user-attachments/assets/d7060735-56ed-44f6-9aec-14cb443894f3 
 
 
 gonna add a bunch of stamps bc im insane and need to build my stamp collection back up YAY!
