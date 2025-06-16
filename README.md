@@ -1,3 +1,5 @@
+<img src="https://komarev.com/ghpvc/?username=cry-of-fear&color=F3899E&style=plastic&label=ㅤyaoiersㅤ&base=10000">  
+
 ![SHUAKETRANSPERENT2](https://github.com/user-attachments/assets/9ad9dda5-63e1-43e9-b05d-b9360ebf8bed)
 
 HI IM SAE!!! u can also call me kashi
