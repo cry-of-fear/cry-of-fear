@@ -2,7 +2,7 @@
 
 ![SHUAKETRANSPERENT2](https://github.com/user-attachments/assets/9ad9dda5-63e1-43e9-b05d-b9360ebf8bed)
 
-HI IM SAE!!! u can also call me kashi
+HI IM SAE!!! u can also call me tobi
 
 i have pretty much no dni unless ur a proshipper or something but other than that anyone can int :3 
 
