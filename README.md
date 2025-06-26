@@ -1,6 +1,7 @@
 <img src="https://komarev.com/ghpvc/?username=cry-of-fear&color=F3899E&style=plastic&label=ㅤyaoiersㅤ&base=10000">  
 
-![githubtierlist](https://i.imgur.com/CFPnVQS.png)
+![175080991616235386](https://github.com/user-attachments/assets/7e643166-49e9-4340-9e06-fc28466ae6f2)
+
 https://rentry.co/github-tierlist this takes me back to how chronically online i was last year ...
 
 HI IM SAE!!! u can also call me tobi
