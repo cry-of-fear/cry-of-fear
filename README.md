@@ -1,5 +1,7 @@
 <img src="https://komarev.com/ghpvc/?username=cry-of-fear&color=F3899E&style=plastic&label=ㅤyaoiersㅤ&base=10000">  
 
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=dftozhqvbmix4dq4bgwe63wos&cover_image=true&theme=novatorem&show_offline=true&background_color=000000&interchange=true&bar_color=f5adad&bar_color_cover=false)](https://spotify-github-profile.kittinanx.com/api/view?uid=dftozhqvbmix4dq4bgwe63wos&redirect=true)
+
 ![175080991616235386](https://github.com/user-attachments/assets/7e643166-49e9-4340-9e06-fc28466ae6f2)
 
 https://rentry.co/github-tierlist this takes me back to how chronically online i was last year ...
