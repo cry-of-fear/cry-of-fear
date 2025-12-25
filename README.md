@@ -6,7 +6,7 @@
 
 https://rentry.co/github-tierlist this takes me back to how chronically online i was last year ...
 
-![IMG_7790 (1)](https://github.com/user-attachments/assets/2e368f3d-a792-4af6-8e78-433a9439f9a6) 
+![IMG_7790 (1)](https://i.imgur.com/PZdWdKA.jpeg) 
 
 (what kakashi and sasuke were REALLY doing before the chunin exams)
 
