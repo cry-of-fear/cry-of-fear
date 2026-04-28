@@ -4,7 +4,7 @@
 
 ![175080991616235386](https://github.com/user-attachments/assets/7e643166-49e9-4340-9e06-fc28466ae6f2)
 
-https://rentry.co/github-tierlist this takes me back to how chronically online i was last year ...
+https://rentry.co/github-tierlist this takes me back to how chronically online i used to be ...
 
 (what kakashi and sasuke were REALLY doing before the chunin exams)
 
