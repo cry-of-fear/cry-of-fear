@@ -6,10 +6,6 @@
 
 https://rentry.co/github-tierlist this takes me back to how chronically online i used to be ...
 
-(what kakashi and sasuke were REALLY doing before the chunin exams)
-
-https://github.com/user-attachments/assets/7349544b-02b9-406e-924b-2da687528c07
-
 gonna add a bunch of stamps bc im insane and need to build my stamp collection back up YAY!
 
 ![button](https://github.com/user-attachments/assets/0e1b5046-fe1f-42d5-bd93-955c38aa3824) ![blinkiesCafe-KO](https://github.com/user-attachments/assets/5b35f979-5ee3-4ffa-974a-bf4328ed955e) ![blinkiesCafe-bR](https://github.com/user-attachments/assets/e89765ea-d498-4719-bab8-696b685c062d)
