@@ -2,6 +2,8 @@
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=dftozhqvbmix4dq4bgwe63wos&cover_image=true&theme=novatorem&show_offline=true&background_color=000000&interchange=true&bar_color=f5adad&bar_color_cover=false)](https://spotify-github-profile.kittinanx.com/api/view?uid=dftozhqvbmix4dq4bgwe63wos&redirect=true)
 
+[my art book page thing go check it out pls and request if you want](https://saeartbook.straw.page/)
+
 ![175080991616235386](https://github.com/user-attachments/assets/7e643166-49e9-4340-9e06-fc28466ae6f2)
 
 https://rentry.co/github-tierlist this takes me back to how chronically online i used to be ...
